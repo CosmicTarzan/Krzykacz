@@ -1,6 +1,6 @@
 # Krzykacz
  
-Zapraszam na polskiego ćwierkacza, tzn. Krzykacza! 
+Zapraszam na polskiego ćwierkacza, tzn. KRZYKACZA! 
 
 Nie odpowiadaj innym w sieci, krzycz na nich! 
 
